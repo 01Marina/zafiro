@@ -1,2 +1,2 @@
 # zafiro
-Sapphire commercial web store female jewelry
+Zafiro commercial web store female jewelry
